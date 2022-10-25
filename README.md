@@ -12,6 +12,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with backend operations and programming and algorithms
 - 💬 Ask me about my hobbies - All the fun things I do when I am not coding
 - 📫 How to reach me: 
+  
   IG: @KayCPequena
   Twitter: @KaylaCLittle
   LinkedIn: https://www.linkedin.com/in/kaylalittle22/
