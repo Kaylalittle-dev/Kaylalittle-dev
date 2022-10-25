@@ -13,8 +13,8 @@ Here are some ideas to get you started:
 - 💬 Ask me about my hobbies - All the fun things I do when I am not coding
 - 📫 How to reach me: 
   
-  IG: @KayCPequena
-  Twitter: @KaylaCLittle
+  IG: @KayCPequena | 
+  Twitter: @KaylaCLittle | 
   LinkedIn: https://www.linkedin.com/in/kaylalittle22/
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love to laugh, listen to music and watch movies (esp. psychological ones), and I am plant-based foodie! 😋
