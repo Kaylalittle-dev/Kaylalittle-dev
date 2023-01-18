@@ -17,5 +17,5 @@ Here are some ideas to get you started:
   Twitter: @KaylaCLittle | 
   LinkedIn: https://www.linkedin.com/in/kaylalittle22/
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love to laugh, listen to music and watch movies (esp. psychological ones), and I am plant-based foodie! 😋
+- ⚡ Fun fact: I love to laugh, listen to music and watch movies (esp. psychological ones), and I am a plant-based foodie! 😋
 
